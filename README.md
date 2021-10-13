@@ -7,11 +7,11 @@
 
 - 💬 Ask me about **how to deal with CodeWars problems**
 
-- 📫 How to reach me **santiagopetri@hotmail.com**
+- 📫 How to reach me: **santiagopetri@hotmail.com**
 
-- 📄 Know about my experiences [https://www.canva.com/design/DAEstsC0TDo/bwsD7GwDA2yZ3GAhANC9Yw/view?utm_content=DAEstsC0TDo&utm_campaign=designshare&utm_medium=link&utm_source=publishsharelink](https://www.canva.com/design/DAEstsC0TDo/bwsD7GwDA2yZ3GAhANC9Yw/view?utm_content=DAEstsC0TDo&utm_campaign=designshare&utm_medium=link&utm_source=publishsharelink)
+- 📄 Know about my experiences: [https://www.canva.com/design/DAEstsC0TDo/bwsD7GwDA2yZ3GAhANC9Yw/view?utm_content=DAEstsC0TDo&utm_campaign=designshare&utm_medium=link&utm_source=publishsharelink](https://www.canva.com/design/DAEstsC0TDo/bwsD7GwDA2yZ3GAhANC9Yw/view?utm_content=DAEstsC0TDo&utm_campaign=designshare&utm_medium=link&utm_source=publishsharelink)
 
-- ⚡ Fun fact **No fun, only khlav kalash**
+- ⚡ Fun fact: **No fun, only khlav kalash**
 
 <h3 align="left">Connect with me:</h3>
 <p align="left">
